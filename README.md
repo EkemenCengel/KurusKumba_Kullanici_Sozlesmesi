@@ -1,1 +1,1 @@
-# KurusKumba_Kullan-c-_S-zle-mesi
+# KurusKumba_Kullanıcı_Sözleşmesi
